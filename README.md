@@ -1,4 +1,4 @@
-# Anonymous
+# ♛Anonymous♛Haker♛Darker♛
 
 Anonymous naziv je za internetski meme koji je nastao 2003. godine. Rabe ga različite skupine i pojedinci unutar cyber kulture s ciljem provođenja raznih akcija i publikacija pod tim nazivom - sa ili bez međusobnih konzultacija.
 
